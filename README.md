@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Billaayyy
 - 👀 I’m interested in Science and Computer Stuff
 - 🌱 I’m currently Majoring in Computer Science and Business Management
-- 💞️ I’m looking to collaborate on here mate.
 - 📫 How to reach me just chat me here!
 - 😄 Pronouns: im a male, so he/him
 - ⚡ Fun fact: i can do backflips and fart at the same time to add some boost
